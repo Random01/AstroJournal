@@ -1,0 +1,2 @@
+- Frost Leo, IRAS 09371+1212, a protoplanetary nebula;
+- IC 59 & IC 63
